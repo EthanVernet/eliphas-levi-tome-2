@@ -1,0 +1,2 @@
+- [[Vérité]] + qui se connait = [[Pensée Vivante]]
+- [[Vérité]] + formulé = [[Parole]]
