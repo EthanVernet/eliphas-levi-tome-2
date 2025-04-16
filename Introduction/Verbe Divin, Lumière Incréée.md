@@ -1,0 +1,3 @@
+- Volonté d'être vue -> **Rayonne**
+- Créer -> [[Intelligence|Intelligences]]
+- 
